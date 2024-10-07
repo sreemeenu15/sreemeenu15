@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sreemeenu15
-- 👀 I’m interested in Life with overwhelming openness and all my Love.
+- 👀 I’m interested in Life with Rationality and Creativity.
 - 🌱 I’m currently learning programming and Logic building.
 - 💞️ I’m looking to collaborate on GitHub and learn better.
 - 📫 How to reach me - Try my LinkedIn.
